@@ -1,0 +1,1 @@
+Warah107 creative services website. Services: photo editing, video editing, thumbnail design. Customer benefit: discounts on eligible future orders. Replace the placeholder Easypaisa number with verified business payment details and use secure server-side payment verification before real transactions.
